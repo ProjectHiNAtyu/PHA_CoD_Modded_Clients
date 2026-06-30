@@ -4,4 +4,11 @@
 
 Please contact me via DM on Discord or Twitter to ask for the password.
 
-Discord : hinatapoko
+-----
+
+[ Contact ]
+ 
+- HiNAtyu
+- YouTube : https://www.youtube.com/@HiNAtyuRoom
+- Twitter : @hinatyu ( https://x.com/hinatyu )
+- Discord : hinatapoko ( https://discordapp.com/users/239453096026046464 )
